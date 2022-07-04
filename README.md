@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚 Currently i am working on my (Applied) Artificial Integillence and Data Science skills.<br>🚗 Right now i am working as a Software Engineer in the automotive industry.<br><br>💬 Ask me about my projects or tech-related stuff.<br>📧  You can reach me via kempkes.christoph@gmail.com<br><br>🚵‍♂️🥾 One of my favourite activities is going out into nature.
+📚 Currently i am working on my (Applied) Artificial Integillence and Data Science skills.<br>🚗 Right now i am working as a Software Engineer in the automotive industry.<br><br>💬 Ask me about my projects or tech-related stuff or even going hiking or biking!<br>📧  You can reach me via kempkes.christoph@gmail.com<br><br>🚵‍♂️🥾 One of my favourite activities is going out into nature.
 
 
 ## 🌐 Socials:
